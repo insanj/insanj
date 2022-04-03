@@ -1,4 +1,7 @@
-### Hi there 👋
+
+✨🐏 Please check out my current project, [Oogy: Can You Help](https://oogycanyouhelp.com)!<br/>
+🪺 [Twitter](https://twitter.com/insanj) • 🌎 [Portfolio](https://insane.works/) • 👋 [Resume](https://insanj.github.io/resume/) • 💬 [Website](https://insanj.com)
+
 
 <!--
 **insanj/insanj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
