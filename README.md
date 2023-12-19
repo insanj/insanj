@@ -1,6 +1,9 @@
 
-✨🐏 Please check out my current project, [Oogy: Can You Help](https://oogycanyouhelp.com)!<br/>
-🪺 [Twitter](https://twitter.com/insanj) • 🌎 [Portfolio](https://insane.works/) • 👋 [Resume](https://insanj.github.io/resume/) • 💬 [Website](https://insanj.com)
+☕ 📺 I'm back on [YouTube](https://youtube.com/insanj)!
+ 
+✨ 🐏 Check out my fully soundtracked indie video game [Oogy: Can You Help](https://oogycanyouhelp.com).
+
+🧵 [Threads](https://threads.net/@insanj) • 🌎 [Portfolio](https://insane.works/) • 👋 [Resume](https://insanj.github.io/resume/) • 💬 [Website](https://insanj.com)
 
 
 <!--
