@@ -3,7 +3,7 @@
  
 ✨ 🐏 Check out my fully soundtracked indie video game [Oogy: Can You Help](https://oogycanyouhelp.com).
 
-🧵 [Threads](https://threads.net/@insanj) • 🌎 [Portfolio](https://insane.works/) • 👋 [Resume](https://insanj.github.io/resume/) • 💬 [Website](https://insanj.com)
+🧵 [Threads](https://threads.net/@insanj) • 🌎 [Portfolio](https://julian.coffee) • 👋 [Resume](https://insanj.github.io/resume/) • 💬 [Website](https://insanj.com)
 
 
 <!--
